@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dkallgren
+- 👀 I’m interested in linguistics, memeing, javascript, and python
+- 🌱 I’m currently learning computer science with UoPeople
+- 💞️ I’m looking to collaborate on ... I'm new to this and have no idea
+- 📫 How to reach me: here? or message me on whatsapp at +1 202 322 3473
